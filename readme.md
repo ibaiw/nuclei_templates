@@ -6,4 +6,4 @@
 
 # 关于作者
 
-![qrcode_for_gh_981785667bb3_258](./qrcode_for_gh_981785667bb3_258.jpg)
+![qrcode_for_gh_981785667bb3_258](https://p.ipic.vip/olw81x.jpg)
